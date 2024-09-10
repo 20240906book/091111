@@ -7,3 +7,6 @@
 重點營運 營收要好
 生態系價值客戶 演講 包場空間
 The scale should be large
+https://20240906book.github.io/091111/
+
+founder
