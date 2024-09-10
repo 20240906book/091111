@@ -10,3 +10,7 @@ The scale should be large
 https://20240906book.github.io/091111/
 
 founder
+2024/09/11
+
+star要有星的單字
+構成
